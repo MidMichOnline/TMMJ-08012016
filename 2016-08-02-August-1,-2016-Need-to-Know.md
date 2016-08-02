@@ -14,3 +14,5 @@ published: true
 
 * [Ithaca girl preps turkey for show at the Gratiot County Fair](http://www.themorningsun.com/general-news/20160801/ithaca-girl-preps-turkey-for-show-at-the-gratiot-county-fair)
 
+* [Haupt corn is ready](http://www.themorningsun.com/general-news/20160801/haupt-corn-is-ready)
+
