@@ -12,5 +12,5 @@ published: true
 
 Here is our tentative schedule for the first 5 weeks of the Cross Country season. Contact Carey D Hammel or Rick Cahoon if you have any questions!
 
-![image alt text]({{ site.url }}/public/DfRyn77YZWfmA0yAYNsw_img_0.png)
+![image alt text](/public/DfRyn77YZWfmA0yAYNsw_img_0.png)
 
