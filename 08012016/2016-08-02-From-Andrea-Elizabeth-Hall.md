@@ -6,6 +6,7 @@ permalink: /from-andrea-elizabeth-hall/
 source-id: 1b-MZKX290WsAi53YLQECXpCHQvp0O6ZE33Bl6HGUqeg
 published: true
 ---
+# Shepherd's First Football Game
 *From Andrea Elizabeth Hall*
 
 It's August!!!! It's FOOTBALL month!!!! Shepherd's first varsity football game will be at home on Thursday, August 25th at 7pm.
