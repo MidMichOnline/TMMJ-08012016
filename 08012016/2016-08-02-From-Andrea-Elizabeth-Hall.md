@@ -6,41 +6,41 @@ permalink: /from-andrea-elizabeth-hall/
 source-id: 1b-MZKX290WsAi53YLQECXpCHQvp0O6ZE33Bl6HGUqeg
 published: true
 ---
-*From **[Andrea Elizabeth Hal*l](https://www.facebook.com/shepherd.cheer?fref=nf)
+*From Andrea Elizabeth Hall*
 
 It's August!!!! It's FOOTBALL month!!!! Shepherd's first varsity football game will be at home on Thursday, August 25th at 7pm.
 
 I'd like to thank the following businesses for sponsorship of our spirit shirts for the 2016 season.
 
-* Mitchell's Deli- [Dean Jamie Mitchell](https://www.facebook.com/deanjamie.mitchell)
+* Mitchell's Deli
 
-* Central Eavestroughing- [Jeb Gilbert](https://www.facebook.com/jeb.gilbert)
+* Central Eavestroughing
 
-* Central Michigan Pro Clean- Andy Mogg 
+* Central Michigan Pro Clean
 
 * C & O Sportswear
 
-* Level 7 Salon- [Lacey Gepford](https://www.facebook.com/lacey.brooks.73)
+* Level 7 Salon
 
-* Mid-Michigan Appliance- [Tim Kirby](https://www.facebook.com/DREAMER669)
+* Mid-Michigan Appliance
 
-* A-1 Mini Storage- [Annette Judge Sponseller](https://www.facebook.com/annette.sponseller)
+* A-1 Mini Storage
 
-* LuLaRoe- [Shelley Capling-Bryant](https://www.facebook.com/shelleyb1973)
+* LuLaRoe
 
-* BRB Seed Services- [Shelley Capling-Bryant](https://www.facebook.com/shelleyb1973)
+* BRB Seed Services
 
-* JS Premier Design- [Jamie Strawder](https://www.facebook.com/james.strawder)
+* JS Premier Design
 
-* Fusion Bootcamp- [Tracy Ann Florian](https://www.facebook.com/thenry2012)
+* Fusion Bootcamp
 
-* Shepherd Youth Football- [Nathan Ferency](https://www.facebook.com/nathan.ferency)
+* Shepherd Youth Football
 
-* Integrity Builders- [Adam Florian](https://www.facebook.com/adam.florian.5)
+* Integrity Builders
 
-* Moeggenborg Sugarbush- [Melisa Moeggenborg Peak](https://www.facebook.com/melisa.peak)
+* Moeggenborg Sugarbush
 
-* On The DL Creations- [Danielle Bentley](https://www.facebook.com/dani.girl113)
+* On The DL Creations
 
 Thank you for your sponsorship! Fans will have a chance to catch a t-shirt at every home varsity game and during special Homecoming activities.
 
